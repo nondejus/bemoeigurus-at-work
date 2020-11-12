@@ -1,1 +1,0 @@
-![](https://github.com/nondejus/bemoeigurus-at-work/blob/main/clienten/doctor%20robin/ervaringsdeskundig%20seriemoordenaar/ggd/hoornbrekerstraat/verdwenen%20kliniek%20gebouw/wonderwall/geheugensteuntje/ArtBoard%20Image%20(105).jpg)
